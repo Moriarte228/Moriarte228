@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 My name is Tatsiana Vyshnikova. I am student of computer science
-[Pink Modern Professional Cv Resume.pdf](https://github.com/user-attachments/files/20833572/Pink.Modern.Professional.Cv.Resume.pdf)
+(https://docs.google.com/document/d/1Xo4mYtxFxK4dj5ksQLcJmKh2r-E3ImlgnyS9rYbKfwU/edit?tab=t.0)
 
 
 
